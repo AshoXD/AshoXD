@@ -1,16 +1,15 @@
-### Hi there 👋
+
+I can draw, compose, code and animate (very mid at all of that).
+
+He/him (straight probably)
+
+i will only work in your fnf mod if it has a skeleton on it
+
+Twitter: https://twitter.com/ashomoment
+Newgrounds: https://asho1.newgrounds.com/
+YT: https://www.youtube.com/channel/UCcK3Ot6YYjD0OR5SeO9ZZ7A
+Discord: Asho#9271 (mostly active here)
 
 <!--
-**AshoXD/AshoXD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+sex
 -->
